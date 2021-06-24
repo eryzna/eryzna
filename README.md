@@ -1,0 +1,1 @@
+With a background in science illustration and fine art, I pursued software engineering to explore interdisciplinary, tech-based solutions to social and environmental issues. A proven leader and collaborator, I strive to help progressive companies create and sustain meaningful connections for a brighter future.
